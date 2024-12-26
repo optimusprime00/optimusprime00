@@ -2,7 +2,7 @@
 - 👀 I’m interested in software
 - 🌱 I’m currently learning puthon 
 - 💞️ I’m new to all this stuff
-- 📫 How to reach me kavyabhardwaj@gmail.com
+- 📫 How to reach me kavyabhardwaj20@gmail.com
 - 
   
 
